@@ -2,6 +2,4 @@
 
 Anche **Maya Bono** e flavo collaborano in questo progetto!!
 
-
-
 test
